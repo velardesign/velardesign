@@ -60,7 +60,7 @@ Velar Design, espelhos modulares, decoração moderna, design de interiores, esp
 
 - 🌐 Site: [velardesign.com.br](https://velardesign.com.br)
 - 📧 E-mail: contato@velardesign.com.br
-- 📸 Instagram: [@velardesign](https://instagram.com/velardesign)
+- 📸 Instagram: [@velardesign](https://instagram.com/_velardesign)
 - 📌 Pinterest: [Velar Design](https://pinterest.com/velardesign)
 
 ---
